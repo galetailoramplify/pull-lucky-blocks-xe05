@@ -1,4 +1,4 @@
-#  
+#  exclusive shrink for brainrots Scripts offers the most advanced shrink for brainrots Script, with teleport and invisibility. Perfect for dominating
 
 
 
